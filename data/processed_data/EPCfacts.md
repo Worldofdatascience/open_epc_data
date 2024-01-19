@@ -1,0 +1,1 @@
+In the latest data release, there are 67306 EPC lodgments in     Oxford
